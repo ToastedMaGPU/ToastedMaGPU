@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ToastedMaGPU.
+- 👀 I’m interested in scripting.
+- 🌱 I’m currently learning nothing.
+- 💞️ I’m looking to collaborate on roblox.
+- 📫 Reach me on discord (toastfrisdead)
